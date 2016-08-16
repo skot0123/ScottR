@@ -1,1 +1,0 @@
-Sample entries in WNR
